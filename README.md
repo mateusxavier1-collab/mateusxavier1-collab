@@ -13,3 +13,5 @@
 
 📫 Contato:
 - GitHub: https://github.com/mateusxavier1-collab
+https://www.linkedin.com/feed/
+mateusxver@gmail.com
